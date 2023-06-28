@@ -1,0 +1,4 @@
+- learning python and lua, interested in typescript, c, c#, c++, javascript, pretty much all the popular ones
+- does animation on roblox
+- thats it pretty much
+- idk why im still going
